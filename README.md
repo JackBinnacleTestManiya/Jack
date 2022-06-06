@@ -6,7 +6,7 @@ maniya
 
 vgj
 bk
-wefe
+we
 dqawx
 fwefdcsx
-csadcde
+csad
